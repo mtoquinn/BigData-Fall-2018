@@ -1,1 +1,0 @@
-corn graphics from Watson

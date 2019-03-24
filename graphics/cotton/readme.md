@@ -1,1 +1,0 @@
-cotton graphics from Watson

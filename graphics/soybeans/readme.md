@@ -1,1 +1,0 @@
-soybeans graphics from Watson
